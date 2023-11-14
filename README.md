@@ -1,1 +1,1 @@
-<img src="[image_url](https://github.com/miroslavkadidlo/miroslavkadidlo/assets/16743203/b21b6beb-be72-4b53-a1da-4c8487442eeb)https://github.com/miroslavkadidlo/miroslavkadidlo/assets/16743203/b21b6beb-be72-4b53-a1da-4c8487442eeb" alt="alt text" width="200" height="100">
+<img src="https://github.com/miroslavkadidlo/miroslavkadidlo/assets/16743203/099432a1-c709-479e-a65a-13f67b6b522b" alt="alien on skateboard" width="200" height="200">
