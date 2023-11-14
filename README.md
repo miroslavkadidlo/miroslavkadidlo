@@ -1,1 +1,1 @@
-![alien on skateboard](https://github.com/miroslavkadidlo/miroslavkadidlo/assets/16743203/b21b6beb-be72-4b53-a1da-4c8487442eeb)
+<img src="[image_url](https://github.com/miroslavkadidlo/miroslavkadidlo/assets/16743203/b21b6beb-be72-4b53-a1da-4c8487442eeb)https://github.com/miroslavkadidlo/miroslavkadidlo/assets/16743203/b21b6beb-be72-4b53-a1da-4c8487442eeb" alt="alt text" width="200" height="100">
