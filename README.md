@@ -1,1 +1,1 @@
-🌌👾  Intergalactic Traveler and Connoisseur of Cosmic Coffee ☕🚀
+🌌 i'm half vulcan, which is fine if you have a logical time 🚀
